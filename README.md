@@ -1,0 +1,2 @@
+# SeiScams
+SeiScams No Airdrop
